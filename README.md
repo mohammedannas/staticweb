@@ -1,1 +1,1 @@
-# staticweb for fashion
+# staticweb for women
